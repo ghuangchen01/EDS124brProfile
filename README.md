@@ -11,3 +11,8 @@
 [Module 8 Explain your Program](https://youtu.be/VhVqKq0lqAk)
 
 [Module 9 Explain your Program](https://youtu.be/VhVqKq0lqAk)
+
+[Module 12 Explain Your Program](https://youtu.be/VhVqKq0lqAk)
+
+[Module 14 Explain Your Program](https://youtu.be/VhVqKq0lqAk)
+
