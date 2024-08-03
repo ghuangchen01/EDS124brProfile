@@ -21,3 +21,6 @@
 [Module 19 Explain Your Program](https://youtu.be/VhVqKq0lqAk)
 
 [Module 22 Explain Your Program](https://youtu.be/VhVqKq0lqAk)
+
+[Module 24 Explain Your Program](https://youtu.be/VhVqKq0lqAk)
+
